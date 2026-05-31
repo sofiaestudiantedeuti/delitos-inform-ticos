@@ -1,1 +1,0 @@
-# delitos-inform-ticos
